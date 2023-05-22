@@ -21,7 +21,7 @@ O Eco+: Recicla tem como principal objetivo estreitar o caminho entre os recicla
 > Navigation Tree
 
 
-> Main Fow
+> Main Flow
 
 ## DOWNLOAD
 
